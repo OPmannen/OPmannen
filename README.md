@@ -1,5 +1,5 @@
 - 👋 Hi, im ar Erland Ekö. 
-- Im the theam chef of the programing group "Slumpen".
+- Im the theamleader of the programing group "Slumpen".
 - "Slumpens" discord: https://discord.gg/P7qBs6SQ.
 - "slumpens" youtube: https://www.youtube.com/channel/UCWjXI3wa-WCi7LYfjE7LmAQ
 - My Mail: erland.eko@gmail.com.
